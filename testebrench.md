@@ -1,0 +1,1 @@
+sim, você está na record.
